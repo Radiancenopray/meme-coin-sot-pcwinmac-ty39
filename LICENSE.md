@@ -1,4 +1,4 @@
-# 
+# Premium meme coin sniper bot scripts para Mac OS | Código aberto meme coin sniper bot scripts para PC Windows. Com execução de pacotes e painéis personalizados — otimizado para máximo desempeño en cada plataforma.
 
 
 
